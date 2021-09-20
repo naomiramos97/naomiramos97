@@ -1,3 +1,3 @@
-University of Southern California Computer Science Student 😛
+Afro Latina in STEM!
 
 
